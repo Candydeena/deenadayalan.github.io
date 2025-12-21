@@ -54,8 +54,8 @@ The portfolio acts as a central hub that connects all my **social media profiles
 
 ### 📞 Contact
 
-* Email contact
-* Contact form (if enabled)
+* deenadayalanr20@gmail.com
+* +91 8072178449
 * Quick access for recruiters and collaborators
 
 ---
